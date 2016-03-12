@@ -1,1 +1,1 @@
-The room filled with slaughter.
+The room filled with laughter.
