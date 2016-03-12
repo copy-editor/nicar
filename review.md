@@ -1,2 +1,2 @@
 The book is elegantly written.  
-Truly this generation's Great American Novel.
+It is the next Great American Novel.
