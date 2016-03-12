@@ -1,1 +1,2 @@
-The book is elegantly written, truly this generation's Great American Novel.
+The book is egregiously written. 
+Truly this generation's Great American Novel.
